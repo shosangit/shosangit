@@ -1,4 +1,4 @@
-![115AABAB](https://github.com/shosangit/shosangit/assets/60593452/3be59258-610a-4b74-ab5b-0db4bc5de06f)# 我是由什么组成的？
+# 我是由什么组成的？
 
 >  有些技能点已经被遗忘了ORZ
 
